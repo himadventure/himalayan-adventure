@@ -1,0 +1,2 @@
+# himalayan-adventure
+We would like to introduce Himalayan Adventure Intl Trek and Expedition P. Ltd. is a trekking agency registered under Nepal Government. Associated with Trekking Agencies' Association of Nepal (TAAN), Nepal Mountaineering Association (NMA) Kathmandu Environmental Education Project (KEEP), NEPAL GOVERNMENT, and Nepal Tourism Board (NTB) permit us legally to organize any kind of adventure treks
